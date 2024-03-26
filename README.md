@@ -1,8 +1,8 @@
 - 👋 Hi, I’m monkee 
-- 👀 I’m monke
-- 💞️ I’m looking to monke
-- 📫 How to reach me monke
+- 👀 I’m monkey
+- 💞️ I’m looking to monkey
+- 📫 How to reach me monkey
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: monke
+- ⚡ Fun fact: monkey
 
-- 🇧🇷 Brazilian monke💋
+- 🇧🇷 Brazilian monkey💋
